@@ -7,7 +7,7 @@ blablabla
 
 ## 01.10.2024
 ### Besuch bei Longines
-blablibla Uhren
+[Link](/20241001)
 
 ### Besuch auf dem Montsolei
 Eine Windturbe ist im Fall 70 Meter hoch...
